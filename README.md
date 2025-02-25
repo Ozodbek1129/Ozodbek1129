@@ -13,5 +13,5 @@ Men **Ozodbek**, dasturiy ta'minot ishlab chiqaruvchisi.
 
 ## 📫 Menga bog‘lanish
 - Email: ozodbekeminov903@gmail.com
-- Telegram: [@yourusername](https://t.me/@bek2oo2)  
+- Telegram: [@Bek2oo2](https://t.me/@bek2oo2)  
 
