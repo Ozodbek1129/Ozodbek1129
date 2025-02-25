@@ -12,6 +12,6 @@ Men **Ozodbek**, dasturiy ta'minot ishlab chiqaruvchisi.
 ![GitHub Stats](https://github-readme-stats.vercel.app/api?username=Ozodbek1129&show_icons=true&theme=radical)
 
 ## 📫 Menga bog‘lanish
-- Email: example@gmail.com  
-- Telegram: [@yourusername](https://t.me/yourusername)  
+- Email: ozodbekeminov903@gmail.com
+- Telegram: [@yourusername](https://t.me/@bek2oo2)  
 
